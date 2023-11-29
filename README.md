@@ -1,11 +1,11 @@
 <h1>Hello World 🏾</h1>
 
-<h1>Welcome To  Profile</h1>
+<h1>Welcome To  NTW's Profile</h1>
 
 
 
 ###   **What's my current role in tech?** </h2>
-       { Software Engineer | Open Source Contributor } 
+       { Software Engineer | Frontend Developer } 
 
 
 
