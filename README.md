@@ -26,7 +26,6 @@ Here are some basic things to know about NkamaWilliams👽👳🏾‍♂️;
 - 🤔 I’m looking for help with expanding my community,
 - 💬 Ask me about anything🌚,
 - 📫 How to reach me: Email: williamsnkama@gmail.com, Phone: +2349016187568,
-- 😄 Pronouns: He/Him/His,
 - ⚡ Fun fact: I love Learning && teaching🎮.
 
 #### My Core Languages
